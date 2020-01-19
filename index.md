@@ -1,3 +1,4 @@
+![プロフィール画像](fde20fd0-private.png)
 # About
 AIに興味があります。
 
