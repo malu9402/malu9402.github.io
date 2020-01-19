@@ -1,4 +1,7 @@
 ![プロフィール画像](fde20fd0-private.png)
+
+<script type="application/javascript" src="https://embed.nicovideo.jp/watch/sm34502648/script?w=640&h=360"></script><noscript><a href="https://www.nicovideo.jp/watch/sm34502648">2019センター英語リスニングのニンジンくんの『えれくとりっく・えんじぇぅ』(inst.)【MMD】</a></noscript>
+
 # About
 AIに興味があります。
 
